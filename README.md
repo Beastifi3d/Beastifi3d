@@ -1,7 +1,6 @@
 ### Hi there 👋
 
-I'm just a kid, making garbage code..
-I make code, without coding. Wait, what
+I'm just a kid, making garbage code.. Without actually coding, ikr?
 
 - 💬 Ask me about Minecraft
 - 📫 How to reach me: beastified69@hotmail.com
