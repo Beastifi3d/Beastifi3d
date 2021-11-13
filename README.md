@@ -1,1 +1,1 @@
-### oh hi, thanks for checking in, i'm still a piece of garbage 🗑
+### website out now!! check it out [here](https://beastksoepic.com)
