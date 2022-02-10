@@ -1,4 +1,4 @@
-## Hi there, I'm beastksoepic!
+## hi there, i'm beastksoepic!
 
 check out my website: https://beastksoepic.com
 
